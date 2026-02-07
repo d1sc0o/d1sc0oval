@@ -1,16 +1,38 @@
-## Hi there 👋
+<div align=center>
 
-<!--
-**d1sc0o/d1sc0o** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# $${\color{#c68ce4} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$$
+
+
+
+
+$${\color{#e6bff5} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
+
+
+
+
+
+
+
+$${\color{#c68ce4} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
+
+$${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \space / \space She \space ִᰔᩚ}$$
+
+$${\color{#e6bff5} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
+
+$${\color{#c68ce4} ʚ𖦹ɞ \space links \space ! \space ⋆⑅˚₊}$$
+
+
+
+
+
+
+<details>
+<summary> $${\color{#a0fdee} 𝜗ৎ \space important \space !!}$$ </summary>
+
+
+
+</details>
+
+</div>
