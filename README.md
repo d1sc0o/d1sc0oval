@@ -13,6 +13,7 @@ $${\color{#ffeaee} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ}$$
 
 ![Static Badge](https://img.shields.io/badge/sick-sick?logo=undertale&logoColor=%23ff91a4&label=love&labelColor=grey&color=%23f8d4eb)
 
+![9n6AJzP](https://github.com/user-attachments/assets/8af8def6-d558-4ea5-b339-944dbbaff012)
 
 
 $${\color{#f8d4eb} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
