@@ -30,11 +30,14 @@ $${\color{#ff91a4} ⬇︎ \space links \space ! \space ‎♡‧₊˚}$$
 , [![a2wq1Ha](https://github.com/user-attachments/assets/00465fd4-00a9-4147-9fbe-3910056d81c8)](https://guns.lol/loonytoony)
 
 
-
 <details>
 <summary> $${\color{#ff768d} 𝜗ৎ \space important \space !!}$$ </summary>
 
+Hello friends + people reading this!! I yhope you're having a wonderful week ^^
 
+I love you all very much!! Valentines day isn't just celebrating romance- to me, it's sharing love in all forms. Platonic, Romantic, Physical; It should all be celebrated! So, if you're feeling a little lonely, feeling like there's no one in the world who loves who you are.. I do! I appreciate every single ponytown-er i come across. We're a community, afterall. Aren't we menat to be there for eachother, and make eachother happy?
+
+To my friends: Happy valentines! I love you all so so SO much!! I treasure you all- you all have a special place in my heart !! So, thank you. For sticking around, for saying hi, for giving me and others kind words. Shine bright, you all !!
 
 </details>
 
